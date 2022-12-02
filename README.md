@@ -1,1 +1,2 @@
-# notion-firja
+# notion-ganteng 😎
+punya orang ganteng
